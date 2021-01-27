@@ -1,0 +1,4 @@
+** Mac 'n' Cheese **
+ Macaroni and cheese—also called mac 'n' cheese in the United States, and macaroni cheese in the United Kingdom—is a dish of cooked macaroni pasta and a cheese sauce, most commonly cheddar. It can also incorporate other ingredients, such as breadcrumbs, meat and vegetables.
+
+Traditional macaroni and cheese is a casserole baked in the oven; however, it may be prepared in a sauce pan on top of the stove or using a packaged mix. The cheese is often first incorporated into a Béchamel sauce to create a Mornay sauce, which is then added to the pasta. In the United States, it is considered a comfort food.
